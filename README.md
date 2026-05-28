@@ -24,3 +24,15 @@ never let me draw men AGAIN
 
 
 t-thats a man too...STOP
+
+
+
+
+
+
+<img width="1246" height="1265" alt="Untitled286_20260528092551" src="https://github.com/user-attachments/assets/d1e07669-7005-4a3b-9169-e5172f02c05b" />
+
+first time trying ibis paint after being a csp user fo 2 years ^
+
+
+salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv~~~~~~~
