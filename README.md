@@ -36,3 +36,18 @@ first time trying ibis paint after being a csp user fo 2 years ^
 
 
 salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv salv~~~~~~~
+
+
+
+SKIP SKIP.
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled289_20260529114603" src="https://github.com/user-attachments/assets/772c68c7-9056-4d01-ab3d-a473a2798d78" />
+
+
+
+Kaelen wright. he/him.
+I LOVE HIM SO MUCH AUUUGHHH
