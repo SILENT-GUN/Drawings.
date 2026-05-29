@@ -51,3 +51,23 @@ SKIP SKIP.
 
 Kaelen wright. he/him.
 I LOVE HIM SO MUCH AUUUGHHH
+
+
+<img width="1078" height="1167" alt="Screenshot_20260529-160816 (1)" src="https://github.com/user-attachments/assets/6047367e-7407-48e4-a6a9-c69a84239c81" />
+
+
+
+
+^ slight redesign to salvvie
+
+
+
+
+
+<img width="1175" height="1257" alt="Screenshot_20260529-164719~2 (1)" src="https://github.com/user-attachments/assets/3e9a4197-75d6-4633-97e2-79cbc2493e47" />
+
+
+
+cmon kae you look adorable 
+
+
