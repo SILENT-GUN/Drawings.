@@ -68,6 +68,31 @@ I LOVE HIM SO MUCH AUUUGHHH
 
 
 
-cmon kae you look adorable 
+cmon kae you look adorable
 
+
+
+
+
+
+
+
+<img width="1084" height="1079" alt="Screenshot_20260529-194419 (1)" src="https://github.com/user-attachments/assets/06e93f14-fdfe-4613-a655-33dae5f88672" />
+
+
+
+
+more kaelen ilovehim.
+
+
+
+
+<img width="1258" height="1323" alt="Screenshot_20260529-230541~2" src="https://github.com/user-attachments/assets/15575f08-ca64-4644-8347-2e1df38606e6" />
+
+
+
+
+
+
+SHITPOST LMAOOOO ^
 
